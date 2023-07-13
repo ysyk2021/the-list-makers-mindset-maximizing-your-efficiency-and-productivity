@@ -1,4 +1,4 @@
-Chapter 6: Overcoming Obstacles to List-Making: Strategies for Overcoming These Obstacles
+Strategies for Overcoming These Obstacles
 =========================================================================================
 
 In this chapter, we will provide strategies for overcoming common obstacles to list-making. By utilizing these strategies, individuals can approach list-making with greater clarity, organization, and intentionality.

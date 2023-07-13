@@ -1,4 +1,4 @@
-Chapter 4: Creating Daily, Weekly, and Monthly Lists: Strategies for Aligning Lists with Goals and Priorities
+Strategies for Aligning Lists with Goals and Priorities
 =============================================================================================================
 
 Creating daily, weekly, and monthly lists can be a powerful tool for maximizing your efficiency and productivity. However, to truly make the most of these lists, it's important to align them with your goals and priorities.

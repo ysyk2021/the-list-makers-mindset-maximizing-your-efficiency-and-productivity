@@ -1,4 +1,4 @@
-Chapter 3: Techniques for Effective List-Making: Strategies for Organizing and Prioritizing Lists
+Strategies for Organizing and Prioritizing Lists
 =================================================================================================
 
 In this chapter, we will explore techniques for effective list-making, including strategies for organizing and prioritizing lists.

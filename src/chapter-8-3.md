@@ -1,4 +1,4 @@
-Chapter 8: The Role of Mindfulness in List-Making: Examples of Individuals Who Achieved Benefits from Mindfulness in List-Making
+Examples of Individuals Who Achieved Benefits from Mindfulness in List-Making
 ================================================================================================================================
 
 In this chapter, we will explore the role of mindfulness in list-making and provide examples of individuals who have achieved benefits from incorporating mindfulness into their list-making practice.

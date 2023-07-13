@@ -1,4 +1,4 @@
-Chapter 6: Overcoming Obstacles to List-Making: Tips for Maintaining Motivation and Commitment to List-Making
+Tips for Maintaining Motivation and Commitment to List-Making
 =============================================================================================================
 
 In this chapter, we will provide tips for maintaining motivation and commitment to list-making. By staying motivated and committed, individuals can overcome obstacles and achieve greater efficiency and productivity through list-making.

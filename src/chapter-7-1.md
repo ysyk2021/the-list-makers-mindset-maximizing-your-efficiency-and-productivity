@@ -1,4 +1,4 @@
-Chapter 7: Collaborating Through List-Making: Importance of Collaboration in List-Making
+Importance of Collaboration in List-Making
 ========================================================================================
 
 In this chapter, we will explore the importance of collaboration in list-making. List-making is often thought of as an individual activity, but it can be a powerful tool for facilitating effective collaboration and maximizing efficiency and productivity in group settings.

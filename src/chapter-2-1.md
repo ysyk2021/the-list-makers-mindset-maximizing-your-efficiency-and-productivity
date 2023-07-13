@@ -1,4 +1,4 @@
-Chapter 2: Understanding the List-Maker's Mindset: Definition of the List-Maker's Mindset
+Definition of the List-Maker's Mindset
 =========================================================================================
 
 In this chapter, we will explore the definition of the list-maker's mindset and how it can be used to maximize efficiency and productivity.

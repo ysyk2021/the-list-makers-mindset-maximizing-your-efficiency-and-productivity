@@ -1,4 +1,4 @@
-Chapter 7: Collaborating Through List-Making: Examples of Successful Collaborations That Utilized List-Making Techniques
+Examples of Successful Collaborations That Utilized List-Making Techniques
 ========================================================================================================================
 
 In this chapter, we will explore examples of successful collaborations that utilized list-making techniques. By examining these examples, we can gain insight into how list-making can be used to facilitate effective collaboration and maximize efficiency and productivity in group settings.

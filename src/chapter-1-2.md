@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Overview of the Book's Contents
+Overview of the Book's Contents
 ========================================================
 
 "The List-Maker's Mindset: Maximizing Your Efficiency and Productivity" is a book that explores the benefits of adopting a list-making mindset for achieving greater efficiency and productivity. In this book, we will provide practical tips and strategies for creating effective lists and utilizing them to achieve personal and professional goals.

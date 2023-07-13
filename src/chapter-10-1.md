@@ -1,4 +1,4 @@
-Chapter 10: Conclusion: Summary of Key Points
+Summary of Key Points
 =============================================
 
 In this book, we explored the list-maker's mindset and how it can be utilized to maximize efficiency and productivity in both work and personal life. Here is a summary of the key points discussed throughout the book:

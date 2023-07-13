@@ -1,4 +1,4 @@
-Chapter 2: Understanding the List-Maker's Mindset: Common Misconceptions About List-Making
+Common Misconceptions About List-Making
 ==========================================================================================
 
 In this chapter, we will address common misconceptions about list-making that can prevent individuals from adopting the list-maker's mindset.

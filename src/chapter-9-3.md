@@ -1,4 +1,4 @@
-Chapter 9: Applying the List-Maker's Mindset Beyond Work: Examples of Individuals Who Successfully Applied the List-Maker's Mindset Beyond Work
+Examples of Individuals Who Successfully Applied the List-Maker's Mindset Beyond Work
 ===============================================================================================================================================
 
 In this chapter, we will explore examples of individuals who successfully applied the list-maker's mindset beyond work. These individuals have utilized list-making to achieve personal goals, organize household tasks, and prioritize their overall well-being.

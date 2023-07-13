@@ -1,4 +1,4 @@
-Chapter 7: Collaborating Through List-Making: Strategies for Effective Collaboration with Others to Maximize Efficiency and Productivity
+Strategies for Effective Collaboration with Others to Maximize Efficiency and Productivity
 ========================================================================================================================================
 
 In this chapter, we will explore strategies for effective collaboration with others through list-making. By utilizing these strategies, individuals can maximize efficiency and productivity in group settings.

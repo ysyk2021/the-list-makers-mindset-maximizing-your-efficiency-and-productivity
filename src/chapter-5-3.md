@@ -1,4 +1,4 @@
-Chapter 5: Utilizing Technology for List-Making: Examples of Individuals Who Successfully Utilized Technology for List-Making
+Examples of Individuals Who Successfully Utilized Technology for List-Making
 =============================================================================================================================
 
 In this chapter, we will explore the benefits of utilizing technology for list-making and provide examples of individuals who have successfully incorporated technology into their list-making practice.

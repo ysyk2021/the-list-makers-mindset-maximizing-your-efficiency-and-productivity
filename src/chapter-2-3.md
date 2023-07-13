@@ -1,4 +1,4 @@
-Chapter 2: Understanding the List-Maker's Mindset: Benefits of Developing a List-Making Mindset
+Benefits of Developing a List-Making Mindset
 ===============================================================================================
 
 In this chapter, we will explore the benefits of developing a list-making mindset and how it can help individuals maximize their efficiency and productivity.

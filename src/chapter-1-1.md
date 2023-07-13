@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Importance of List-Making in Productivity
+Importance of List-Making in Productivity
 ==================================================================
 
 List-making is a simple but powerful tool that can help individuals maximize their efficiency and productivity. By creating lists of tasks, goals, and priorities, individuals can approach their work with greater clarity, organization, and intentionality.

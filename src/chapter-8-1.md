@@ -1,4 +1,4 @@
-Chapter 8: The Role of Mindfulness in List-Making: Importance of Mindfulness in List-Making
+Importance of Mindfulness in List-Making
 ===========================================================================================
 
 Mindfulness is a powerful tool for improving focus, reducing stress, and increasing productivity. When it comes to list-making, mindfulness can play a critical role in helping you stay focused on your goals and priorities.

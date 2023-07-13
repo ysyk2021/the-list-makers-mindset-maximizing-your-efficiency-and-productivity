@@ -1,4 +1,4 @@
-Chapter 4: Creating Daily, Weekly, and Monthly Lists: Examples of Individuals Who Successfully Created Daily, Weekly, and Monthly Lists
+Examples of Individuals Who Successfully Created Daily, Weekly, and Monthly Lists
 =======================================================================================================================================
 
 Creating daily, weekly, and monthly lists is a core component of the list-maker's mindset. By breaking down your tasks into manageable chunks, you can achieve greater focus and productivity, as well as reduce stress and overwhelm.

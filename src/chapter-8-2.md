@@ -1,4 +1,4 @@
-Chapter 8: The Role of Mindfulness in List-Making: Techniques for Practicing Mindfulness to Improve List-Making
+Techniques for Practicing Mindfulness to Improve List-Making
 ===============================================================================================================
 
 In this chapter, we will explore techniques for practicing mindfulness to improve list-making. By incorporating mindfulness into list-making, individuals can approach tasks with greater focus, intentionality, and reduced stress related to overwhelming tasks or deadlines.

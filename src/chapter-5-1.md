@@ -1,4 +1,4 @@
-Chapter 5: Utilizing Technology for List-Making: Importance of Utilizing Technology in List-Making
+Importance of Utilizing Technology in List-Making
 ==================================================================================================
 
 In this chapter, we will explore the importance of utilizing technology in list-making.

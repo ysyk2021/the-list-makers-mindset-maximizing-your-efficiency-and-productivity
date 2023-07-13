@@ -1,4 +1,4 @@
-Chapter 9: Applying the List-Maker's Mindset Beyond Work: Strategies for Using List-Making to Organize Personal Life
+Strategies for Using List-Making to Organize Personal Life
 ====================================================================================================================
 
 In this chapter, we will explore how to apply the list-maker's mindset beyond work and utilize it to organize one's personal life. By creating lists of tasks, goals, and priorities, individuals can approach their personal lives with greater clarity, organization, and intentionality.

@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Importance of list-making in productivity](chapter-1-1.md)
   - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Understanding the List-Maker's Mindset](chapter-2.md)
@@ -36,8 +35,5 @@
   - [Importance of applying the list-maker's mindset beyond work](chapter-9-1.md)
   - [Strategies for using list-making to organize personal life](chapter-9-2.md)
   - [Examples of individuals who successfully applied the list-maker's mindset beyond work](chapter-9-3.md)
-- [Chapter 10: Conclusion](chapter-10.md)
-  - [Summary of key points](chapter-10-1.md)
-  - [Final thoughts on maximizing efficiency and productivity through the list-maker's mindset](chapter-10-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
