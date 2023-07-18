@@ -12,9 +12,6 @@ Throughout this book, you'll learn how to break down large goals into smaller ta
 
 "The List-Maker's Mindset" is a must-read for anyone looking to boost their efficiency and productivity. Whether you're a seasoned veteran or just starting out, this book offers valuable insights and guidance to help you achieve your goals and reach new heights of success.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
