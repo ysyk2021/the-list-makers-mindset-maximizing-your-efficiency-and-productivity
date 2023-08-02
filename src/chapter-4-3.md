@@ -1,4 +1,4 @@
-Chapter 14: Examples of Individuals who Successfully Created Daily, Weekly, and Monthly Lists
+Examples of Individuals who Successfully Created Daily, Weekly, and Monthly Lists
 =============================================================================================
 
 In this chapter, we will explore inspiring examples of individuals who have effectively implemented daily, weekly, and monthly lists to maximize their efficiency and productivity. These real-life examples showcase how list-making can be tailored to different needs and preferences.

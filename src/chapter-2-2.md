@@ -1,4 +1,4 @@
-Chapter 18: Common Misconceptions About List-Making
+Common Misconceptions About List-Making
 ===================================================
 
 In this chapter, we will address and debunk common misconceptions about list-making. Despite its many benefits, there are often misunderstandings surrounding this powerful productivity tool. By addressing these misconceptions, we can gain a clearer understanding of how list-making can truly enhance efficiency and productivity.

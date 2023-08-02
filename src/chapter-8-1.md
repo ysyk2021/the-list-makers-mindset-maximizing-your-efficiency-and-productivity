@@ -1,4 +1,4 @@
-Chapter 10: Importance of Mindfulness in List-Making
+Importance of Mindfulness in List-Making
 ====================================================
 
 In this chapter, we will explore the importance of mindfulness in the practice of list-making. Mindfulness is a powerful tool that can significantly enhance your efficiency and productivity. Let's delve into why mindfulness is crucial for effective list-making:

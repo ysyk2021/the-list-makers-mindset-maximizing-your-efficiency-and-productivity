@@ -1,4 +1,4 @@
-Chapter 13: Common Obstacles to List-Making
+Common Obstacles to List-Making
 ===========================================
 
 In this chapter, we will explore common obstacles that can hinder effective list-making. By understanding these challenges, you can proactively address them and develop strategies for overcoming them.

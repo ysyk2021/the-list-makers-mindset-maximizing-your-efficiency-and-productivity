@@ -1,4 +1,4 @@
-Chapter 1: Overview of the Book's Contents
+Overview of the Book's Contents
 ==========================================
 
 Welcome to "The List Maker's Mindset: Maximizing Your Efficiency and Productivity." In this chapter, we will provide an overview of the book's contents, giving you a glimpse into the valuable insights and strategies you will gain throughout your reading journey.

@@ -1,4 +1,4 @@
-Chapter 15: Strategies for Aligning Lists with Goals and Priorities
+Strategies for Aligning Lists with Goals and Priorities
 ===================================================================
 
 In this chapter, we will explore strategies for effectively aligning your lists with your goals and priorities. By ensuring your lists are purposeful and targeted, you can increase your productivity and make meaningful progress towards your objectives.

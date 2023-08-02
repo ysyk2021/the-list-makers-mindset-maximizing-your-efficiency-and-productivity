@@ -1,4 +1,4 @@
-Chapter 7: Strategies for Using List-Making to Organize Personal Life
+Strategies for Using List-Making to Organize Personal Life
 =====================================================================
 
 In this chapter, we will explore effective strategies for using list-making to organize your personal life. By applying these strategies, you can bring structure, efficiency, and productivity to your daily activities outside of work. Let's dive into the different techniques you can employ to optimize personal organization through list-making.

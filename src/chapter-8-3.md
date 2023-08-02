@@ -1,4 +1,4 @@
-Chapter 10: Examples of Individuals Who Achieved Benefits from Mindfulness in List-Making
+Examples of Individuals Who Achieved Benefits from Mindfulness in List-Making
 =========================================================================================
 
 In this chapter, we will explore real-life examples of individuals who have experienced significant benefits by incorporating mindfulness into their list-making practices. These individuals have recognized the power of mindfulness in enhancing focus, reducing stress, and increasing productivity. Let's delve into their stories:
