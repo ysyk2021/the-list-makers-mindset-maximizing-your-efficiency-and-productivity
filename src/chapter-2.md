@@ -1,5 +1,3 @@
-Chapter 2: Understanding the List-Maker's Mindset
-=================================================
 
 In this chapter, we will explore the list-maker's mindset and its benefits. We will also address common misconceptions about list-making.
 

@@ -1,5 +1,3 @@
-Chapter 8: The Role of Mindfulness in List-Making
-=================================================
 
 In this chapter, we will explore the importance of mindfulness in list-making.
 

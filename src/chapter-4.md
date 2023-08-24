@@ -1,5 +1,3 @@
-Chapter 4: Creating Daily, Weekly, and Monthly Lists
-====================================================
 
 In this chapter, we will explore techniques for creating daily, weekly, and monthly lists, as well as strategies for aligning lists with goals and priorities.
 

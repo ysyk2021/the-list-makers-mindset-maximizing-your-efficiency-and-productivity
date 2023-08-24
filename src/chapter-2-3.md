@@ -1,5 +1,3 @@
-Benefits of Developing a List-Making Mindset
-========================================================
 
 In this chapter, we will explore the numerous benefits that come with developing a List-Making Mindset. By embracing the principles and practices of effective list-making, you can unlock your full potential for maximizing efficiency and productivity.
 

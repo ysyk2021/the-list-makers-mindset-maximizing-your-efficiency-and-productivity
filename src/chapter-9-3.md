@@ -1,5 +1,3 @@
-Examples of Individuals Who Successfully Applied the List-Maker's Mindset Beyond Work
-================================================================================================
 
 In this chapter, we will explore real-life examples of individuals who have successfully applied the list-maker's mindset beyond their work lives. These individuals have utilized the power of list-making to bring structure, efficiency, and productivity to various aspects of their personal lives. Their stories serve as inspiration and demonstrate the versatility of the list-maker's mindset.
 

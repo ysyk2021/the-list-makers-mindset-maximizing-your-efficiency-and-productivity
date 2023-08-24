@@ -1,5 +1,3 @@
-Techniques for Creating Effective Lists
-==================================================
 
 In this chapter, we will explore techniques that will help you create effective lists to boost your efficiency and productivity. By implementing these strategies, you can organize your tasks, set clear priorities, and stay focused on achieving your goals. Let's dive into the techniques for creating effective lists.
 

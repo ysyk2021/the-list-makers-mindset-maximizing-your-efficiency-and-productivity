@@ -1,5 +1,3 @@
-Definition of the List-Maker's Mindset
-==================================================
 
 In this chapter, we will delve into the definition of the List-Maker's Mindset. By understanding the core principles and mindset behind effective list-making, you can unlock your full potential for maximizing efficiency and productivity.
 

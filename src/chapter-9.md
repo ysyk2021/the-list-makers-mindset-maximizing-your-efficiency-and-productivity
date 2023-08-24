@@ -1,5 +1,3 @@
-Chapter 9: Applying the List-Maker's Mindset Beyond Work
-========================================================
 
 In this chapter, we will explore the importance of applying the list-maker's mindset beyond work and provide strategies for using list-making to organize personal life. Additionally, we will provide examples of individuals who have successfully applied the list-maker's mindset beyond work.
 

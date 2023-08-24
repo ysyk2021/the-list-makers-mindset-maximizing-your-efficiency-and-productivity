@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we explored the list-maker's mindset and how it can be utilized to maximize efficiency and productivity in both work and personal life. We discussed practical strategies for adopting a list-making mindset, overcame obstacles to list-making, applied list-making beyond work, and provided tips for maintaining motivation and commitment towards list-making.
 

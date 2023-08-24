@@ -1,5 +1,3 @@
-Chapter 3: Techniques for Effective List-Making
-===============================================
 
 In this chapter, we will explore techniques and strategies for effective list-making that maximize efficiency and productivity.
 

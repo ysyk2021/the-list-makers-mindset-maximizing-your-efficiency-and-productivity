@@ -1,5 +1,3 @@
-Chapter 6: Overcoming Obstacles to List-Making
-==============================================
 
 In this chapter, we will explore common obstacles that individuals may encounter when adopting a list-making mindset and provide strategies for overcoming these obstacles. Additionally, we will discuss tips for maintaining motivation and commitment to list-making.
 

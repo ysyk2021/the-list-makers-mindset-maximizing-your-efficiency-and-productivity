@@ -1,5 +1,3 @@
-Importance of Applying the List-Maker's Mindset Beyond Work
-======================================================================
 
 In this chapter, we will explore the significance of applying the list-maker's mindset beyond the realm of work. While effective list-making techniques are often associated with boosting productivity in professional settings, they can also have a profound impact on personal and overall well-being. Let's delve into the importance of embracing the list-maker's mindset outside of work.
 

@@ -1,5 +1,3 @@
-Chapter 7: Collaborating Through List-Making
-============================================
 
 In this chapter, we will explore the importance of collaboration in list-making, strategies for effective collaboration with others to maximize efficiency and productivity, and examples of successful collaborations that utilized list-making techniques.
 

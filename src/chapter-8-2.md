@@ -1,5 +1,3 @@
-Techniques for Practicing Mindfulness to Improve List-Making
-=======================================================================
 
 In this chapter, we will explore techniques for practicing mindfulness to enhance your list-making process. Mindfulness is the practice of being fully present and aware of your thoughts, emotions, and experiences in the present moment. By incorporating mindfulness into your list-making routine, you can improve focus, clarity, and productivity. Let's delve into some effective techniques:
 

@@ -1,5 +1,3 @@
-Techniques for Creating Daily, Weekly, and Monthly Lists
-==============================================================================================================
 
 In this chapter, we will explore techniques for creating daily, weekly, and monthly lists.
 
