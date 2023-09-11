@@ -1,3 +1,6 @@
+# The List-Maker's Mindset: Maximizing Your Efficiency and Productivity
+
+Book Link: [https://zhengpublishing.com/the-list-makers-mindset-maximizing-your-efficiency-and-productivity/](https://zhengpublishing.com/the-list-makers-mindset-maximizing-your-efficiency-and-productivity/)
 
 Do you ever feel like there are not enough hours in the day to get everything done? Do you struggle with managing your time and prioritizing your tasks effectively? If so, you're not alone. In today's fast-paced world, it's more important than ever to be efficient and productive in both your personal and professional life.
 
